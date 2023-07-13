@@ -1,4 +1,4 @@
-Chapter 7: Mentoring and Coaching: Overcoming Common Mentoring and Coaching Challenges
+Overcoming Common Mentoring and Coaching Challenges
 ======================================================================================
 
 Mentoring and coaching are essential for developing the next generation of leaders. In this chapter, we will explore some common mentoring and coaching challenges and how to overcome them.

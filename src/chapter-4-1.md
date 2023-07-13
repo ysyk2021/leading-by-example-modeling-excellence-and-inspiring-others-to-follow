@@ -1,4 +1,4 @@
-Chapter 3: Building Trust Through Action: The Importance of Trust in Leadership
+The Importance of Trust in Leadership
 ===============================================================================
 
 Trust is essential to effective leadership. Without trust, it's difficult to build relationships, inspire others, and achieve organizational goals. In this chapter, we'll explore the importance of trust in leadership and how to build trust through action.

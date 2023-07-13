@@ -1,4 +1,4 @@
-Conclusion: Recap of the Book's Content and Key Takeaways
+Recap of the Book's Content and Key Takeaways
 =========================================================
 
 In this book, we have explored the essential qualities and skills of effective leadership. From modeling excellence and inspiring others to follow, to communicating with impact and measuring success, there are many facets of leadership that require attention and development.

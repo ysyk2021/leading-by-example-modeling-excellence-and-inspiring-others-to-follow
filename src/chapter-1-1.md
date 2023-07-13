@@ -1,4 +1,4 @@
-Introduction: Explanation of the Book's Purpose and Goals
+Explanation of the Book's Purpose and Goals
 =========================================================
 
 Welcome to "Leading by Example: Modeling Excellence and Inspiring Others to Follow". The purpose of this book is to provide leaders at all levels with strategies for leading by example and inspiring others to do the same.

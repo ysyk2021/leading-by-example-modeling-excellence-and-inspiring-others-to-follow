@@ -1,4 +1,4 @@
-Chapter 7: Mentoring and Coaching: The Benefits of Mentoring and Coaching
+The Benefits of Mentoring and Coaching
 =========================================================================
 
 Mentoring and coaching are powerful tools for developing leadership skills and achieving personal and professional growth. In this chapter, we'll explore the benefits of mentoring and coaching.

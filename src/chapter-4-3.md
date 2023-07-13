@@ -1,4 +1,4 @@
-Chapter 3: Building Trust Through Action: Overcoming Common Trust Barriers
+Overcoming Common Trust Barriers
 ==========================================================================
 
 Trust is essential to effective leadership, but it's not always easy to build. In this chapter, we'll explore some common barriers to trust and how to overcome them.

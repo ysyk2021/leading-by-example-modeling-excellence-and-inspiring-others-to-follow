@@ -1,4 +1,4 @@
-Chapter 5: Communicating with Impact: The Importance of Clear and Impactful Communication
+The Importance of Clear and Impactful Communication
 =========================================================================================
 
 Effective communication is a key factor in successful leadership. As a leader, it is important to communicate clearly and impactfully to ensure that your messages are understood, relevant, and inspiring. In this chapter, we will explore the importance of clear and impactful communication and how it can be achieved.

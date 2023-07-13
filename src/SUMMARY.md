@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Explanation of the book's purpose and goals](chapter-1-1.md)
   - [Overview of the contents and structure of the book](chapter-1-2.md)
 - [Chapter 1: Understanding Leading by Example](chapter-2.md)
@@ -36,8 +35,5 @@
   - [The importance of measuring leadership effectiveness](chapter-9-1.md)
   - [Key metrics for tracking progress and success](chapter-9-2.md)
   - [Using data to make informed decisions about future leadership initiatives](chapter-9-3.md)
-- [Conclusion](chapter-10.md)
-  - [Recap of the book's content and key takeaways](chapter-10-1.md)
-  - [Encouragement to lead by example for greater excellence and inspiration in leadership](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

@@ -1,4 +1,4 @@
-Introduction: Overview of the Contents and Structure of the Book
+Overview of the Contents and Structure of the Book
 ================================================================
 
 Welcome to "Leading by Example: Modeling Excellence and Inspiring Others to Follow". This book is designed to help leaders at all levels understand the importance of leading by example and provide strategies for doing so effectively.

@@ -1,4 +1,4 @@
-Chapter 2: Setting the Right Example: Incorporating Core Values into Your Leadership Style
+Incorporating Core Values into Your Leadership Style
 ==========================================================================================
 
 Incorporating core values into your leadership style is essential to setting the right example and creating a culture of excellence. In this chapter, we'll explore how to incorporate core values into your leadership style.

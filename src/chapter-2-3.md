@@ -1,4 +1,4 @@
-Chapter 1: Understanding Leading by Example: The Benefits of Leading by Example in Team Settings
+The Benefits of Leading by Example in Team Settings
 ================================================================================================
 
 In this chapter, we will explore the benefits of leading by example in team settings.

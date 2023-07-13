@@ -1,4 +1,4 @@
-Chapter 4: Inspiring Others to Follow: Creating a Culture of Excellence within Your Organization
+Creating a Culture of Excellence within Your Organization
 ================================================================================================
 
 Leadership is about inspiring others to follow and achieve excellence. In this chapter, we will explore how leaders can create a culture of excellence within their organization.

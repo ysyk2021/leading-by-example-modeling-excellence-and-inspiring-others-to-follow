@@ -1,4 +1,4 @@
-Chapter 4: Inspiring Others to Follow: The Role of Storytelling in Inspiring Others
+The Role of Storytelling in Inspiring Others
 ===================================================================================
 
 Leadership is about inspiring others to follow. In this chapter, we will explore the role of storytelling in inspiring others and how leaders can use stories to connect with their team members and create a shared vision for the future.

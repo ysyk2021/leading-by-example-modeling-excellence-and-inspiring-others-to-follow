@@ -1,4 +1,4 @@
-Chapter 2: Setting the Right Example: Overcoming Barriers to Setting the Right Example
+Overcoming Barriers to Setting the Right Example
 ======================================================================================
 
 In this chapter, we will explore some common barriers to setting the right example as a leader and strategies for overcoming them.

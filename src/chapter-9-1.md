@@ -1,4 +1,4 @@
-Chapter 8: Measuring Success: The Importance of Measuring Leadership Effectiveness
+The Importance of Measuring Leadership Effectiveness
 ==================================================================================
 
 Effective leadership requires continuous improvement and an ongoing commitment to achieving success. One of the most important aspects of this is measuring leadership effectiveness. In this chapter, we will explore why it is important to measure leadership effectiveness and how it can be done.

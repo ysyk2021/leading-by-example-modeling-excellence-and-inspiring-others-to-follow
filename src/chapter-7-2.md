@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Leadership Style: Identifying Your Own Leadership Style
+Identifying Your Own Leadership Style
 ==================================================================================
 
 Every leader has their own unique leadership style. In this chapter, we will explore the importance of identifying your own leadership style and how to develop it for greater effectiveness in your role.

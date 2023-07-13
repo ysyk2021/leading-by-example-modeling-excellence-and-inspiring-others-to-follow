@@ -1,4 +1,4 @@
-Chapter 8: Measuring Success: Using Data to Make Informed Decisions About Future Leadership Initiatives
+Using Data to Make Informed Decisions About Future Leadership Initiatives
 =======================================================================================================
 
 Effective leadership requires continuous improvement and a commitment to measuring success. In this chapter, we will explore the importance of using data to make informed decisions about future leadership initiatives.

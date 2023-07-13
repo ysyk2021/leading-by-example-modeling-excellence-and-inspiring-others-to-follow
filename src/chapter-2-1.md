@@ -1,4 +1,4 @@
-Chapter 1: Understanding Leading by Example: Defining Leading by Example
+Defining Leading by Example
 ========================================================================
 
 In this chapter, we will explore the concept of leading by example and define what it means to lead in this way.

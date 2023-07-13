@@ -1,4 +1,4 @@
-Chapter 5: Communicating with Impact: The Role of Feedback in Communication
+The Role of Feedback in Communication
 ===========================================================================
 
 Feedback is a crucial component of effective communication. In this chapter, we will explore the role of feedback in communication and how it can be used to improve performance and enhance outcomes.

@@ -1,4 +1,4 @@
-Chapter 2: Setting the Right Example: Strategies for Setting the Right Example as a Leader
+Strategies for Setting the Right Example as a Leader
 ==========================================================================================
 
 In this chapter, we will explore strategies for setting the right example as a leader, including:

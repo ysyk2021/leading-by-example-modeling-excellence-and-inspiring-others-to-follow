@@ -1,4 +1,4 @@
-Chapter 3: Building Trust Through Action: Techniques for Building Trust Through Action
+Techniques for Building Trust Through Action
 ======================================================================================
 
 Building trust is a critical component of effective leadership. In this chapter, we'll explore some techniques for building trust through action.

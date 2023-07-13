@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Leadership Style: Understanding Different Leadership Styles
+Understanding Different Leadership Styles
 ======================================================================================
 
 Effective leadership requires a deep understanding of different leadership styles. In this chapter, we will explore the most common leadership styles and how to identify which style is most effective for different situations.

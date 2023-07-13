@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Leadership Style: Adapting Your Leadership Style to Different Situations
+Adapting Your Leadership Style to Different Situations
 ===================================================================================================
 
 Effective leadership requires the ability to adapt to different situations and contexts. In this chapter, we will explore how leaders can adapt their leadership style to different situations and achieve greater success as a result.

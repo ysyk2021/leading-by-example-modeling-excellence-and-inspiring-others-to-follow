@@ -1,4 +1,4 @@
-Chapter 4: Inspiring Others to Follow: Strategies for Inspiring Others to Follow Your Lead
+Strategies for Inspiring Others to Follow Your Lead
 ==========================================================================================
 
 As a leader, inspiring others to follow your lead is essential to achieving organizational goals and creating a culture of excellence. In this chapter, we'll explore strategies for inspiring others to follow your lead.

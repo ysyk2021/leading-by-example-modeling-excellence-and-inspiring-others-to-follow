@@ -1,4 +1,4 @@
-Chapter 7: Mentoring and Coaching: Building Effective Relationships with Mentees and Coaches
+Building Effective Relationships with Mentees and Coaches
 ============================================================================================
 
 Mentoring and coaching are essential for developing the next generation of leaders. In this chapter, we will explore how to build effective relationships with mentees and coaches.

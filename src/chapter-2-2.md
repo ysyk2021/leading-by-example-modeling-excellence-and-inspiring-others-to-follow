@@ -1,4 +1,4 @@
-Chapter 1: Understanding Leading by Example: The Impact of Modeling Excellence on Leadership
+The Impact of Modeling Excellence on Leadership
 ============================================================================================
 
 In this chapter, we will explore the impact of modeling excellence on leadership.

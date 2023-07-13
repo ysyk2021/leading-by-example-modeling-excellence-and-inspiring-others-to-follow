@@ -1,4 +1,4 @@
-Chapter 5: Communicating with Impact: Techniques for Crafting Clear and Concise Messages
+Techniques for Crafting Clear and Concise Messages
 ========================================================================================
 
 Crafting clear and concise messages is essential for effective communication. In this chapter, we will explore some techniques that can help you achieve this goal.

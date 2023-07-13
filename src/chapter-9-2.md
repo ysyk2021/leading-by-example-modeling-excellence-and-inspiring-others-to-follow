@@ -1,4 +1,4 @@
-Chapter 8: Measuring Success: Key Metrics for Tracking Progress and Success
+Key Metrics for Tracking Progress and Success
 ===========================================================================
 
 In this chapter, we will explore key metrics that leaders can use to track progress and success when leading by example.
