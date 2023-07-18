@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 In this book, we have explored the essential qualities and skills necessary for effective leadership. From modeling excellence and inspiring others to follow, to communicating with impact and measuring success, there are many facets of leadership that require attention and development.
 
 Recap of the Book's Content and Key Takeaways
