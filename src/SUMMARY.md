@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [Explanation of the book's purpose and goals](chapter-1-1.md)
-  - [Overview of the contents and structure of the book](chapter-1-2.md)
 - [Chapter 1: Understanding Leading by Example](chapter-2.md)
   - [Defining leading by example](chapter-2-1.md)
   - [The impact of modeling excellence on leadership](chapter-2-2.md)
