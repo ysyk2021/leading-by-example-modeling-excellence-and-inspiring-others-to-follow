@@ -1,5 +1,3 @@
-Chapter 2: Setting the Right Example
-====================================
 
 Setting the right example is essential to effective leadership. In this chapter, we'll explore strategies for setting the right example as a leader, incorporating core values into your leadership style, and overcoming barriers to setting the right example.
 

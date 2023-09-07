@@ -1,5 +1,3 @@
-Chapter 3: Building Trust through Action
-========================================
 
 In this chapter, we will explore the importance of trust in leadership, techniques for building trust through action, and strategies for overcoming common trust barriers.
 

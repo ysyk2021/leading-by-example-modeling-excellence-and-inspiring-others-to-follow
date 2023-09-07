@@ -1,5 +1,3 @@
-Chapter 5: Communicating with Impact
-====================================
 
 Effective communication is an essential trait of any successful leader. In this chapter, we will explore the importance of clear and impactful communication, techniques for crafting clear and concise messages, and the role of feedback in communication.
 

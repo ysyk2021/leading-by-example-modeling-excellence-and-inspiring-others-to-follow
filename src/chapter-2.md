@@ -1,5 +1,3 @@
-Chapter 1: Understanding Leading by Example
-===========================================
 
 In this chapter, we will explore the concept of leading by example and its impact on leadership.
 
@@ -27,5 +25,4 @@ Leading by example has many benefits in team settings, including:
 By committing yourself to leading by example, you can create a culture of growth and excellence that benefits both you and your team members.
 
 Remember to approach leading by example with intention and kindness, and be open to the many ways that doing so can benefit both you and your team members. By embodying your core values and expectations in your daily interactions and decision-making, you can inspire others to follow your lead and achieve their full potential.
-
 

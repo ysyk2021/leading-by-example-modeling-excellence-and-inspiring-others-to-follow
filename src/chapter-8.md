@@ -1,5 +1,3 @@
-Chapter 7: Mentoring and Coaching
-=================================
 
 In this chapter, we will explore the benefits of mentoring and coaching in leadership, how to build effective relationships with mentees and coaches, and strategies for overcoming common mentoring and coaching challenges.
 

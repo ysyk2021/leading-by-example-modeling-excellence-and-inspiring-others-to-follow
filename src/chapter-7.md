@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Leadership Style
-===========================================
 
 Effective leadership requires a deep understanding of different leadership styles and the ability to adapt to different situations. In this chapter, we will explore how to identify your own leadership style, understand different leadership styles, and adapt your style to fit different situations.
 
