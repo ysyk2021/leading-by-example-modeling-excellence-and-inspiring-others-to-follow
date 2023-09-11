@@ -1,5 +1,4 @@
-Chapter 8: Key Metrics for Tracking Progress and Success
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and success as a leader and identify key metrics that can help measure achievements. By establishing measurable indicators, leaders can assess performance, make data-driven decisions, and inspire continuous improvement.
 

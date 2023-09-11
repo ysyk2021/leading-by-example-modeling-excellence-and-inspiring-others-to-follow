@@ -1,5 +1,4 @@
-Chapter 10: Using Data to Make Informed Decisions about Future Leadership Initiatives
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of using data to make informed decisions about future leadership initiatives. By leveraging data analytics and insights, leaders can gain valuable information that informs strategic planning, identifies areas for improvement, and drives effective leadership development initiatives.
 

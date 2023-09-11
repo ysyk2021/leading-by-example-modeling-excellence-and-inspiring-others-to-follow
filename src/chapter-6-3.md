@@ -1,5 +1,4 @@
-Chapter 8: The Role of Feedback in Communication
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of feedback in communication for leaders. Effective feedback plays a vital role in modeling excellence, fostering growth, and inspiring others to follow. By understanding the significance of feedback and implementing constructive feedback mechanisms, leaders can enhance their communication skills and strengthen relationships with their teams.
 

@@ -1,5 +1,4 @@
-Chapter 10: The Impact of Modeling Excellence on Leadership
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that modeling excellence has on leadership. When leaders embody and exemplify excellence in their actions, behaviors, and attitudes, they create a powerful influence that inspires and motivates others to follow suit. By understanding and harnessing the impact of modeling excellence, leaders can effectively lead their teams towards success.
 

@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Common Mentoring and Coaching Challenges
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address common challenges that arise in mentoring and coaching relationships and provide strategies for overcoming them. Effective mentoring and coaching play a crucial role in developing individuals and inspiring them to reach their full potential. By understanding and proactively addressing these challenges, leaders can create impactful mentoring and coaching experiences.
 

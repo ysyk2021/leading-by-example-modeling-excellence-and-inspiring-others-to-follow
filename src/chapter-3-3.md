@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Barriers to Setting the Right Example
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common barriers that leaders face when trying to set the right example and provide strategies for overcoming these challenges. It is crucial for leaders to overcome these obstacles to ensure they model excellence and inspire others to follow in their footsteps.
 

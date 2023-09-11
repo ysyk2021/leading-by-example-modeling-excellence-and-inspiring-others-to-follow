@@ -1,5 +1,4 @@
-Chapter 12: Adapting Your Leadership Style to Different Situations
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting your leadership style to different situations. Effective leaders understand that a one-size-fits-all approach may not be suitable for every circumstance. By recognizing the unique needs, challenges, and dynamics of each situation, leaders can adjust their leadership style to maximize their effectiveness and achieve optimal outcomes.
 

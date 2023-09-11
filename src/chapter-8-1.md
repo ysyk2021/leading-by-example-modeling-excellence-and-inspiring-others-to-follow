@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Mentoring and Coaching
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of mentoring and coaching in leadership development and organizational success. Mentoring and coaching are powerful tools that enable leaders to model excellence, inspire others, and create a culture of continuous learning and growth.
 

@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Crafting Clear and Concise Messages
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for crafting clear and concise messages as a leader. Effective communication is essential in modeling excellence and inspiring others to follow. By mastering the art of delivering clear and concise messages, leaders can enhance understanding, engagement, and inspire action.
 

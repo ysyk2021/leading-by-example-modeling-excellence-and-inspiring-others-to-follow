@@ -1,5 +1,4 @@
-Chapter 6: Identifying Your Own Leadership Style
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the process of identifying your own leadership style. Understanding and embracing your unique leadership style is crucial for effective leadership. By exploring your strengths, values, and preferences, you can develop a leadership approach that aligns with your authentic self and maximizes your impact as a leader.
 

@@ -1,5 +1,4 @@
-Chapter 6: Incorporating Core Values into Your Leadership Style
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of incorporating core values into your leadership style. Core values serve as guiding principles that shape the behavior and decisions of leaders. By aligning your leadership style with these values, you can create a strong foundation for modeling excellence and inspiring others to follow.
 

@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Inspiring Others to Follow Your Lead
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for inspiring others to follow your lead. Effective leaders understand that leadership is not just about giving orders but also about motivating and influencing others to willingly and enthusiastically join their cause. By implementing the following strategies, leaders can inspire their teams to achieve greatness and foster a culture of excellence.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Leading by Example in Team Settings
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of leading by example in team settings. When leaders model excellence and inspire others to follow, they create a positive and high-performing environment that propels the success of the team as a whole. By understanding and harnessing the benefits of leading by example, leaders can maximize their impact and drive extraordinary outcomes.
 

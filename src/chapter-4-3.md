@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Common Trust Barriers
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the topic of overcoming common trust barriers as a leader. Building and maintaining trust is crucial for modeling excellence and inspiring others to follow. By understanding and addressing common trust barriers, leaders can foster a culture of trust, collaboration, and high-performance within their teams.
 

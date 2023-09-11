@@ -1,5 +1,4 @@
-Chapter 4: Defining Leading by Example
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of leading by example as a fundamental principle of modeling excellence and inspiring others to follow. Leading by example involves embodying the behaviors, values, and qualities that leaders want to see in their team members. By understanding and practicing leading by example, leaders can create a positive impact and foster a culture of excellence within their organizations.
 

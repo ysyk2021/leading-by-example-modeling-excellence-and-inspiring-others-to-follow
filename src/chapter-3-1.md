@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Setting the Right Example as a Leader
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for setting the right example as a leader. The actions and behaviors demonstrated by leaders have a profound impact on their teams and organizational culture. By implementing the following strategies, leaders can model excellence and inspire others to follow in their footsteps.
 

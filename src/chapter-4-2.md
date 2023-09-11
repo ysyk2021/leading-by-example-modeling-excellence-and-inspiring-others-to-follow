@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Building Trust Through Action
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for building trust through action as a leader. Trust is a fundamental element of modeling excellence and inspiring others to follow. By taking specific actions that demonstrate trustworthiness, leaders can cultivate an environment of trust, respect, and collaboration within their teams.
 
